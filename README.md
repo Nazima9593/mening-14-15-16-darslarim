@@ -1,1 +1,1 @@
-# mening-14-15-16-darslarim
+# phyton 14-15-16-dars, vazifalarim
